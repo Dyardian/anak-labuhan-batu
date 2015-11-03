@@ -1,0 +1,2 @@
+# anak-labuhan-batu
+Kesuksesan bukanlah segalanya, Kegagalan hanyalah sebuah proses kesuksesan yang tertunda, Berbuat terbaik itulah yang paling utama.  Sekecil apa pun rezeki yang telah Kita dapatkan hari ini, syukurilah &amp; berterima kasihlah kepada sang maha pencipta. Karena sekecil apapun rezeki yang telah Kita dapatkan, tidak datang dengan sendirinya.   TTD : Aek Nabara City Community http://dyardian.heck.in -- http://ancc.heck.in
